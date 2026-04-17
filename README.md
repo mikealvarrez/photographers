@@ -21,11 +21,20 @@
 - https://www.instagram.com/freyer.s_photo
 - https://www.instagram.com/cristianosoares12
 - https://www.instagram.com/desantisph
+- https://www.instagram.com/pedromachado.ph
+- https://www.instagram.com/droyfilms
+- https://www.instagram.com/vivianarthurphoto
+- https://www.instagram.com/rodrigomoraes.ph
+- https://www.instagram.com/vinisilvaph2
+- https://www.instagram.com/devindelsanto_ph
+- https://www.instagram.com/pandolfiph
+- https://www.instagram.com/photobynetto
 
 
 # Magazines
 - https://www.instagram.com/tilted.official
 - https://www.instagram.com/mavrin
+- https://www.instagram.com/evoke.channel
 - https://www.instagram.com/goddessclass
 - https://www.instagram.com/slickforce
 - https://www.instagram.com/wildsetfreemedia
@@ -42,9 +51,11 @@
 - https://www.instagram.com/si_swimsuit
 - https://www.instagram.com/ledefinelingerie
 - https://www.instagram.com/oneillwomens
+- https://www.instagram.com/mapale
 
 
 # Adults
+- https://www.instagram.com/playboy
 - https://www.instagram.com/vixenxofficial
 - https://www.instagram.com/officialplayboyclub
 
