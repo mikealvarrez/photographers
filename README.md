@@ -8,6 +8,7 @@
 - https://www.instagram.com/semkavkvadrate
 - https://www.instagram.com/tatianagigi
 - https://www.instagram.com/mila_zvereva
+- https://www.instagram.com/eli_infante_
 - https://www.instagram.com/nandojordao
 - https://www.instagram.com/dudasousa.ph
 - https://www.instagram.com/eroscuerpo
@@ -69,6 +70,14 @@
 - https://www.instagram.com/bfitphoto
 - https://www.instagram.com/iseesexy.vegas
 - https://www.instagram.com/eroscuerpo
+- https://www.instagram.com/xue_photos
+- https://www.instagram.com/stadlerfilms
+- https://www.instagram.com/rafaelderivera_oficial
+- https://www.instagram.com/emersonsfotos
+- https://www.instagram.com/ovethmartinez
+- https://www.instagram.com/ph_sofico
+- https://www.instagram.com/jeanphilippe___
+- https://www.instagram.com/anamacielfotografias
 
 
 # Magazines
@@ -87,7 +96,7 @@
 - https://www.instagram.com/magnifikmagazine
 - https://www.instagram.com/hussiemodels
 - https://www.instagram.com/sppeculum
-- https://www.instagram.com/ph_sofico
+- https://www.instagram.com/beautiette
 
 
 # Studios
@@ -131,15 +140,11 @@
 - 
 
 # More...
-- https://www.instagram.com/jeanphilippe___
 - https://www.instagram.com/carolineriegerfotografa
-- https://www.instagram.com/rafaelderivera_oficial
 - https://www.instagram.com/pia.onfilm
 - https://www.instagram.com/juliancallejass
 - https://www.instagram.com/andrebrendlerfotografo
 - https://www.instagram.com/denis.nemyachenko
-- https://www.instagram.com/beautiette
-- https://www.instagram.com/ovethmartinez
 - https://www.instagram.com/carlosdavid.ca
 - https://www.instagram.com/juliancallejass
 - https://www.instagram.com/iamjessicagomes
@@ -148,10 +153,8 @@
 - https://www.instagram.com/dlyriobras
 - https://www.instagram.com/irenerudnykphoto
 - https://www.instagram.com/heimlicher.official
-- https://www.instagram.com/emersonsfotos
 - https://www.instagram.com/nicksaglimbeni
 - https://www.instagram.com/rafaelstadlerfilms_
-- https://www.instagram.com/stadlerfilms
 - https://www.instagram.com/eduardocaluz
 - https://www.instagram.com/rafavi.store
 - https://www.instagram.com/kimthiessen_photography
@@ -168,7 +171,6 @@
 - https://www.instagram.com/victorcatininfotografia
 - https://www.instagram.com/salvadorfrancoisph
 - https://www.instagram.com/cylmodaintima
-- https://www.instagram.com/xue_photos
 - https://www.instagram.com/yutsai88
 - https://www.instagram.com/akhmedyanov
 - https://www.instagram.com/bydelpaco
@@ -187,11 +189,9 @@
 - https://www.instagram.com/duantunesphoto
 - https://www.instagram.com/patelimages
 - https://www.instagram.com/patelimages
-- https://www.instagram.com/eli_infante_
 - https://www.instagram.com/neyrotphoto
 - https://www.instagram.com/disenko_photography
 - https://www.instagram.com/gianna_bellucci
-- https://www.instagram.com/anamacielfotografias
 
 
 
