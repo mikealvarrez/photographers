@@ -173,6 +173,7 @@
 - https://www.instagram.com/cylmodaintima
 - https://www.instagram.com/ramonafitwear
 - https://www.instagram.com/gianna_bellucci
+- https://www.instagram.com/lavinialingerie
 
 
 # Agency
